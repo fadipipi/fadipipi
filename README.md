@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... tittis ("non sexual")
 - 🌱 I’m currently learning ... boooooba
 - 💞️ I’m looking to collaborate on ... exchange booby pics (.)(.) --> (  .  )(  .  )
-- 📫 How to reach me ...
+- 📫 How to reach me ...snabchat
 
 <!---
 fadipipi/fadipipi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
